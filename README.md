@@ -12,7 +12,7 @@
 ### 6. Devotion
 ### 7. Disolver
 ### 8. Do More Lite
-### 9^. Dog Gone
+### 9. Dog Gone
 ### 10. Dr Lola
 ### 11. Duo Synth Bender
 ### 12. Dad On Drums
