@@ -1,4 +1,4 @@
-![Aristocrat](https://is3-ssl.mzstatic.com/image/thumb/Music114/v4/69/dc/51/69dc5150-a474-d4fe-51cb-70995d6607ec/source/200x200bb.jpg)
+![Aristocrat](https://distrokid.imgix.net/http%3A//distrokid.com/hyperfollow/art/yo50/aristocrat?w=800&s=e12faa6bf7eeca7ecb12acae7b960378)
 
 # Aristocrat
 
